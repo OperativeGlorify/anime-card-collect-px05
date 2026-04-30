@@ -1,4 +1,4 @@
-
+anime card collection vip Scripts is the best anime card collection Script, featuring teleport and auto-farm. Safe and powerful for all your needs.
 
 
 
